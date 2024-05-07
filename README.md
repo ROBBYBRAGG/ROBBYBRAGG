@@ -2,7 +2,7 @@
 - 👀 I’m interested in getting all my questions right in ttrs
 - 🌱 I’m currently learning all my times tables 
 - 💞️ I’m looking to collaborate on money
-- 📫 How to reach me discord user fortnitekid0074_66241
+- 📫 How to reach me, discord user fortnitekid0074_66241
 - 😄 Pronouns: bulgarian
 - ⚡ Fun fact: im from bulgaria
 
